@@ -5,7 +5,7 @@
 🎓 **Master of Science** in Information Technology - Business Data Analytics | Central Michigan University (GPA: 3.75/4.0)  
 💼 Currently seeking **Data Analyst opportunities** in top tech companies across the US and India  
 📧 Pradeepkarra1@gmail.com | 📞 +1 (989) 506-3088  
-🔗 [LinkedIn](https://www.linkedin.com/in/pradeepkarra1) | 💻 [GitHub](https://github.com/Pradeepkarra1)
+🔗 [LinkedIn](https://www.linkedin.com/in/karra-pradeep/) |
 
 ---
 
